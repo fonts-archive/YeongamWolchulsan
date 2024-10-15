@@ -1,6 +1,6 @@
 # 영암월출산체
 
-[배포처 바로가기]([http://www.vitro.co.kr/vitro/font.html](https://www.yeongam.go.kr/home/www/new_plus/introduce/introduce_11/introduce_11_05))
+[배포처 바로가기](https://www.yeongam.go.kr/home/www/new_plus/introduce/introduce_11/introduce_11_05)
 
 &nbsp;
 
